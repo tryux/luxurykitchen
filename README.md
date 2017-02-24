@@ -1,2 +1,2 @@
-# luxurykitchen
-luxury Modular Kitchen
+Luxury Kitchen
+Modular Kitchen & House Interiors
